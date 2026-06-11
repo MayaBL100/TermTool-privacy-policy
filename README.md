@@ -1,0 +1,1 @@
+# TermTool-privacy-policy
